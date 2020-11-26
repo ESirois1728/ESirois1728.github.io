@@ -1,0 +1,9 @@
+## Votre engagement
+
+Si vous en êtes à votre première expérience avec un chaton, j’aurais quelques conseils à vous donner avant de vous engager dans cette merveilleuse aventure. Premièrement, dans le but d’en savoir plus sur cette race qu’est l’Himalayen, je vous suggère de faire une petite recherche sur internet afin de mieux le découvrir. Il y a une panoplie d’articles à ce sujet.
+
+Deuxièmement, bien que je vous ai dit que cette race de chat est très sociable, tranquille et affectueuse, je ne peux vous cacher que c’est l’une des races qui a besoin le plus de soin à cause de sa fourrure!!! Si vous êtes prêts à vous engager à avoir un Himalayen, c’est que vous êtes aussi prêts à vous engager à l’entretenir quotidiennement. C’est-à-dire, le brosser pour prévenir les boules de poils, et ainsi limiter la perte de poils et conserver la douceur de sa  fourrure. Pour éviter aussi des vomissements de boules de poils. Il faut aussi nettoyer ses yeux régulièrement, car cette race à tendance à couler un peu des yeux. Alors pour le bien-être et la santé de votre petite bête, il ne faut que 5 à 10 minutes par jour pour la rendre heureuse. Et ça vous permet de passer un temps de qualité avec votre petit amour!!! Pour plus d’informations et de conseils sur l’entretien de votre chat, je vais vous fournir un petit guide dans la trousse de départ.
+
+Mon but, en spécifiant ces petits détails, est de protéger cet animal en évitant les problèmes de santé et de prolonger la durée de sa vie. Et aussi pour éviter les regrets de gens qui n’avaient aucune idée de ce que ça implique d’avoir un Himalayen. Donc si je vous dis cela, c’est pour le bien du chat et pour vous aussi. Alors avant de prendre votre décision, prenez le temps d’y réfléchir. Mais je dois vous dire aussi que si vous êtes prêts et que vous vous lancez, jamais vous ne le regretterez!!!
+
+Amicalement!
